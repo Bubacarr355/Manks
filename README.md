@@ -2,4 +2,4 @@
 Hi Manks, 
 
 
-i manks here by request for assestant in my project 
+i manks here by request for assistance in my project 
